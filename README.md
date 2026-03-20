@@ -1,0 +1,2 @@
+# licensing2
+QUOTATIONS FOR LICENSING
